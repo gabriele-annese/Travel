@@ -25,6 +25,9 @@
 - 📍 Nara - **2025**
 - 📍 Kyoto - **2025**
 
+### 🇵🇱 Poland
+- 📍 Warsaw - **2026**
+
 ---
 
 ## 🧭 Non Nazioni
